@@ -1,2 +1,0 @@
-# FUD-HUT
-Alles mögliche
